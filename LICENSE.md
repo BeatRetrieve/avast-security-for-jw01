@@ -1,4 +1,4 @@
-
+Get the ultimate Avast Security for macOS helper with instant Avast Security for macOS Helper | malware-scanning + anti-tracking. Featuring malware-scanning and anti-tracking,
 
 
 
